@@ -18,9 +18,9 @@ At TecH BuilderZ, our mission is to transform ideas into digital reality. We thr
 
 ### Connect with Us:
 
-🌐 [Visit our Website](https://techbuilderz.com)
+🌐 [Visit our Website](https://techbuilderz.co.in)
 📧 Email: info@techbuilderz.com
-📱 Follow us on [LinkedIn](https://www.linkedin.com/company/techbuilderz)
-🐦 Follow us on [Twitter](https://twitter.com/techbuilderz)
+📱 Follow us on [LinkedIn](https://www.linkedin.com/company/tech-builderz/)
+🐦 Follow us on [Insta](https://www.instagram.com/tech_builderz/)
 
-Let's build the future together!
+Let's build the future together...!
